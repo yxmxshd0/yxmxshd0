@@ -1,6 +1,6 @@
 - @yxmxshd0
-- INTERESTED IN BEATS
-- ALL WORKS ARE HERE: https://www.youtube.com/channel/UCvxHD-8L_W2qa0xoMTfTr_w
+
+muffed and slowed to perfection lmao
 
 <!---
 yxmxshd0/yxmxshd0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
